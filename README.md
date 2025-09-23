@@ -23,3 +23,5 @@ Highly motivated to learn new technologies and contribute to innovative projects
 
 # 📫 To communicate
    -- Email: ✉ mohamedsene097@gmail.com 
+
+   -- [LinkedIn](https://www.linkedin.com/in/mohamed-ramadan-8828a827b)
